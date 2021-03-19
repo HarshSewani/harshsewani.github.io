@@ -1,2 +1,2 @@
 # harshsewani.github.io
-My Websirte and postfolio
+My Website and postfolio
